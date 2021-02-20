@@ -1,0 +1,5 @@
+![alt text](/62130500061_groupwork_4/preview_1.png?raw=true)
+![alt text](/62130500061_groupwork_4/preview_2.png?raw=true)
+![alt text](/62130500061_groupwork_4/preview_3.png?raw=true)
+![alt text](/62130500061_groupwork_4/preview_4.png?raw=true)
+![alt text](/62130500061_groupwork_4/preview_5.png?raw=true)
